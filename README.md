@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **anilcrest2400@gmail.com**
 
-- 📞 Contact: **<a href="tel:+9779845508943">+9779845508943</a>**
+
 
 - 🏠 Location: **Naya-Thimi, Bhaktapur**
 
